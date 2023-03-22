@@ -29,4 +29,5 @@ Step 6. Become Religious and pray to god it works
 
 
 
-jmenu sucks
+
+jmenu sucks 💀
