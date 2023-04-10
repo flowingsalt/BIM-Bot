@@ -1,10 +1,13 @@
 # BIM-Bot
+
+
+
 The best and only Big Ideas Math answer hack.
 
 made by flowings and darryl mahoney.
 
 join discord maybe 
-discord.gg/nullify
+discord.gg/lunicious
 
 licensed under gnu or smth
 
