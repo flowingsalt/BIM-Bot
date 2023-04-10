@@ -7,7 +7,7 @@ The best and only Big Ideas Math answer hack.
 made by flowings and darryl mahoney.
 
 join discord maybe 
-discord.gg/lunicious
+https://discord.gg/lunicious
 
 licensed under gnu or smth
 
