@@ -3,6 +3,7 @@
 
 
 The best and only Big Ideas Math answer hack.
+If this helps you star the repo
 
 made by flowings and darryl mahoney.
 
