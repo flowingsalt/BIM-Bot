@@ -1,7 +1,7 @@
 # BIM-Bot
 
 
-
+Cwedit to voidSevenSevenSix [Infinite Checks Guy](https://github.com/voidsevensevensix) and flowings 😜😜😜
 The best and only Big Ideas Math answer hack.
 If this helps you star the repo
 
