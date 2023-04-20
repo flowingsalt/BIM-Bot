@@ -8,7 +8,7 @@ If this helps you star the repo
 made by flowings and darryl mahoney.
 
 join discord maybe 
-https://discord.gg/lunicious
+https://discord.gg/YB2NQwWk8S
 
 licensed under gnu or smth
 
